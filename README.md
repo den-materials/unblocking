@@ -46,7 +46,26 @@ No pain no gain. Every experienced dev started where you did. You will one day b
 ![Office Space](https://media.giphy.com/media/RhEvCHIeZAZ6E/giphy.gif)
 
 
+## Student Suggestions
+Here's what our students have done to help unblock themselves:
 
+- Swimming
+- Wine
+- Take a walk
+- **Take a break!**
+- Rock climb brrooooo
+- CSS. Or puppies.
+- I swear a lot...I mean A LOT!
+- Dance?
+- Go outdoors. Run, bike, hike. 
+- Go do something else for awhile
+- Take a shower
+- Yoga...or 
+    * eating a bunch of ice cream sandwiches or 
+    * pb cups  
+    * with netflix or amazon prime
+- A lil' beef stroganoff
+- Get up, move, maybe talk to somebody but not necessarily about the problem
 
 
 
